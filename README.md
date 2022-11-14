@@ -1,1 +1,1 @@
-# Movie Budget and Finanical Earnings
+# Movie Budget and Finanical Earnings.
